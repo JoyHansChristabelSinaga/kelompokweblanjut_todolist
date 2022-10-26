@@ -2,4 +2,4 @@
 
 BANGKJOYY
 
-BANGPUTT
+Putu Putra Eka Persada (2057051016)
